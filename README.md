@@ -1,8 +1,11 @@
 
          Team Members
 Stephen Baker ID#2017001858
+
 Toni Ann Wallace ID#2017001545
+
 Meleisa Pinnock ID#2017002015
+
 Kemar Norton ID#2017001789
 
 
